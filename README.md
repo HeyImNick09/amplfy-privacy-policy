@@ -17,4 +17,4 @@ January 7, 2026
 
 ## Contact
 
-For privacy-related questions: privacy@amplfy.app
+For privacy-related questions: Trustedloyalty00@gmail.com
